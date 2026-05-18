@@ -1,4 +1,4 @@
-# 
+# instant Norton 360 for PC scripts is the best Norton 360 for PC scripts with phishing-protection and scheduled-scans. Safe, reliable, and optimized for maximum performance.
 
 
 
